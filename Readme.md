@@ -46,7 +46,7 @@ ngizok.khumbularhh
 
 > 💜 Cabang' ngoba uyazi mina dalii ngiyazfela,uthando lwamii olwakho uyazi ngiyazdela,
 imfudumalo yakho yazi ngiyaydinga (ehh) yazii mina ngiyaydinga,
->
+
 > 💜 Cabang' ngoba uyazi mina dalii ngiyazfela,uthando lwamii olwakho uyazi ngiyazdela,
 imfudumalo yakho yazi ngiyaydinga (ehh) yazii mina ngiyaydinga,
 
