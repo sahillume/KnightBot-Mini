@@ -54,9 +54,11 @@ imfudumalo yakho yazi ngiyaydinga (ehh) yazii mina ngiyaydinga,
 
 ## 📱 Chorus
 
-> 💜 Dali ngzobuya ngikbone,ngsayozami mpiloh eGoli ukuze mina nawe siberytss marhh,ngizok.khumbularhh,
+> 💜 Dali ngzobuya ngikbone,ngsayozami mpiloh eGoli ukuze mina nawe siberytss marhh,
+ngizok.khumbularhh,
 >
-> 💜 Dali ngzobuya ngikbone,ngsayozami mpiloh eGoli ukuze mina nawe siberytss marhh,ngizok.khumbularhh
+> 💜 Dali ngzobuya ngikbone,ngsayozami mpiloh eGoli ukuze mina nawe siberytss marhh,
+ngizok.khumbularhh
 
 > 📱 Noma uvelungshaye nje ngevideo call,
 >
