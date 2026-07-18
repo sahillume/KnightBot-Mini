@@ -20,9 +20,11 @@
 
 ## ❤️ Chorus
 
-> 💜 Dali ngzobuya ngikbone,ngsayozami mpiloh eGoli ukuze mina nawe siberytss marhh,ngizok.khumbularhh,
+> 💜 Dali ngzobuya ngikbone,ngsayozami mpiloh eGoli ukuze mina nawe siberytss marhh,
+ngizok.khumbularhh,
 >
-> 💜 Dali ngzobuya ngikbone,ngsayozami mpiloh eGoli ukuze mina nawe siberytss marhh,ngizok.khumbularhh
+> 💜 Dali ngzobuya ngikbone,ngsayozami mpiloh eGoli ukuze mina nawe siberytss marhh,
+ngizok.khumbularhh
 
 > 📱 Noma uvelungshaye nje ngevideo call,
 >
@@ -42,11 +44,11 @@
 >
 > 💕 Ukuthi wena maloveyy,ungowamii daliii,
 
-> 💜 Cabang' ngoba uyazi mina dalii ngiyazfela,uthando lwamii olwakho uyazi ngiyazdela,imfudumalo yakho yazi ngiyaydinga (ehh),
-yazii mina ngiyaydinga,
+> 💜 Cabang' ngoba uyazi mina dalii ngiyazfela,uthando lwamii olwakho uyazi ngiyazdela,
+imfudumalo yakho yazi ngiyaydinga (ehh) yazii mina ngiyaydinga,
 >
-> 💜 Cabang' ngoba uyazi mina dalii ngiyazfela,uthando lwamii olwakho uyazi ngiyazdela,imfudumalo yakho yazi ngiyaydinga (ehh),
-yazii mina ngiyaydinga,
+> 💜 Cabang' ngoba uyazi mina dalii ngiyazfela,uthando lwamii olwakho uyazi ngiyazdela,
+imfudumalo yakho yazi ngiyaydinga (ehh) yazii mina ngiyaydinga,
 
 ---
 
